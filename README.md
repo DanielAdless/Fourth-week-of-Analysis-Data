@@ -19,3 +19,27 @@ This dataset is produced by the Karawang Regency Labor and Transmigration Servic
 
 
 •	Based on the results of the diagram above, it can be seen that the highest average job seekers in 2020 are at the high school education level, which is 38,051 (90.3%) of the total average of all job seekers in 2020. Then in second place there is a junior high school education level, which is 1,460 (3.41%).
+
+
+
+
+
+
+
+**🙌📊"In the 12th week, the course of studying Data Analysis and Visualization felt more satisfying. The ability to parse complex datasets and make informative visualizations further expand. This moment is proof of the progress achieved in mastering data analysis skills."🌐📈**
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
